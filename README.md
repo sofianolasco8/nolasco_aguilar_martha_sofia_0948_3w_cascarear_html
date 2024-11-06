@@ -1,6 +1,13 @@
 # nolasco_aguilar_martha_sofia_0948_3w_cascarear_html
-![image](https://github.com/user-attachments/assets/188eda06-fcab-4aee-9197-65f39c7e70b8)
-![image](https://github.com/user-attachments/assets/fd43817c-28d7-4c93-9fc0-d4ab83f7f029)
-![image](https://github.com/user-attachments/assets/a7f3fd0f-fbee-4cac-b97c-5949f56f1505)
+![image](https://github.com/user-attachments/assets/78399603-f983-4bd7-9154-19dc54d9c412)
+![image](https://github.com/user-attachments/assets/17410cfa-87ef-440e-9882-ecd9bcc6c856)
+![image](https://github.com/user-attachments/assets/a2b0bb70-552d-4835-bd17-a542fea64f94)
+![image](https://github.com/user-attachments/assets/34b0ef92-0513-414b-a3ef-adbb41955a8b)
+![image](https://github.com/user-attachments/assets/d9e625c0-8ef8-469f-ad06-9ea9f2189424)
+
+
+
+
+
 
 
